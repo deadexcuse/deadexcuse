@@ -1,16 +1,17 @@
-## Hi there 👋
 
-<!--
-**deadexcuse/deadexcuse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+─────── ♪ ︵︵  𝐂𝐎𝐋𝐈𝐍  ︵︵  ♪ ───────
+<p align="center">
+$${\color{blue}‎ [ 19‎ ,‎ He/Him ‎ ,‎ ISFP ]‎ }$$
+</div>
+<p align="center">
+ʟᴇᴛ ɪᴛ ʙᴇ ꜱᴘᴏᴋᴇɴ, ʟᴇᴛ ɪᴛ ʙᴇ ꜱᴄʀᴇᴀᴍᴇᴅ
+  <p align="center">
+</div>
+    <p align="center">
+ᴛʜᴇʏ'ʟʟ ɴᴇᴠᴇʀ ᴇᴠᴇʀ ᴛᴀᴋᴇ ᴜꜱ ᴀʟɪᴠᴇ
+<p align="center">
+────────────────────────────────
+  <p align="center">
+<img src="https://i.imgur.com/mcRQfGt.png"/>
+</p>
