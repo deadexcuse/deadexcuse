@@ -1,6 +1,6 @@
 
 <p align="center">
-─────── ♪ ︵︵  𝐂𝐎𝐋𝐈𝐍  ︵︵  ♪ ───────
+─────── ♪ ︵︵ 𝐂𝐀𝐋𝐕𝐈𝐍  ︵︵  ♪ ───────
 <p align="center">
 $${\color{blue}‎ [ 19‎ ,‎ He/Him ‎ ,‎ ISFP ]‎ }$$
 </div>
